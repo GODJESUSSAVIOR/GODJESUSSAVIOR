@@ -22,6 +22,7 @@ https://seekfreedom.org
 https://godreports.com
 https://persecution.org
 https://opendoors.org
+https://rignation.org
 https://jmkusa.com
 https://acts17.com
 https://dohi.org
@@ -79,7 +80,6 @@ https://kesaksianpewahyuan.blogspot.com
 https://kesaksianmenguatkan.blogspot.com
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
 https://docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E ( = https://tiny.cc/GJS )
-
 ...
 
 messages from Github :
