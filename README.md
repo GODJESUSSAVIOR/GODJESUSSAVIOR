@@ -10,10 +10,14 @@ https://github.com/GODJESUSSAVIOR
 https://parler.com/GODJESUSSAVIOR
 https://freetalk.app/GODJESUSSAVIOR
 https://mastodon.social/@GODJESUSSAVIOR
+https://twitter.com/GODJESUSSAV1OR
+https://GODJESUSSAVIOR.locals.com
+https://rumble.com/user/GODJESUSSAVIOR
 https://GODJESUSSAVIOR.webnode.page
 https://youtube.com/@GODJESUSSAVIOR
 https://archive.org/details/@godjesussavior
-email = GODJESUSSAVIORkingofkings@gmail.com
+Links = https://goo.by/GJS = https://tiny.cc/GJS
+Email = GODJESUSSAVIORkingofkings@gmail.com
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
 https://biblegateway.com
 https://tlc-messages.com
@@ -22,12 +26,13 @@ https://seekfreedom.org
 https://godreports.com
 https://persecution.org
 https://opendoors.org
-https://rignation.org
-https://jmkusa.com
 https://acts17.com
+https://ob.org
 https://dohi.org
 https://csi-usa.org
+https://jmkusa.com
 https://chinaaid.org
+https://rignation.org
 https://bitterwinter.org
 https://julie-lopez.com
 https://christianaid.org
@@ -79,7 +84,10 @@ https://andreyredwhite.blogspot.com
 https://kesaksianpewahyuan.blogspot.com
 https://kesaksianmenguatkan.blogspot.com
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-https://docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E ( = https://tiny.cc/GJS )
+https://1drv.ms/w/s!Avex3uT-tH4LgV7G4l4ArHNn0MIr 
+( = https://goo.by/GJS )
+https://docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
+( = https://tiny.cc/GJS )
 
 ...
 
