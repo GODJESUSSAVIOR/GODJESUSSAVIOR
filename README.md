@@ -29,52 +29,6 @@ rignation.org
 acts17.com
 i24news.tv
 ecfa.org
-ob.org
-dohi.org
-ywam.org
-csw.org.uk
-csi-usa.org
-jmkusa.com
-chinaaid.org
-cmiusca.org
-bitterwinter.org
-julie-lopez.com
-jewishvoice.org
-johnramirez.org
-oneforisrael.org
-barnabasaid.org
-jewsforjesus.org
-✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-GOD JESUS MESSIAH GOD OF GODS
-GOD JESUS SAVIOR KING OF KINGS
-GOD JESUS CHRIST LORD OF LORDS
-✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-telegram.me/GODJESUSSAVI0R
-minds.com/GODJESUSSAVIOR
-gab.com/GODJESUSSAVIOR
-github.com/GODJESUSSAVIOR
-locals.com/member/GODJESUSSAVIOR
-mastodon.social/@GODJESUSSAVIOR
-patreon.com/GODJESUSSAVIOR
-rumble.com/user/GODJESUSSAVIOR
-youtube.com/@GODJESUSSAVIOR
-archive.org/details/@godjesussavior
-Links = GODJESUSSAVIOR.webnode.page
-Email = GODJESUSSAVIORkingofkings@gmail.com
-✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-biblegateway.com
-tlc-messages.com
-jesusministries.org
-seekfreedom.org
-godreports.com
-persecution.org
-christianaid.org
-opendoors.org
-elijahlist.com
-rignation.org
-acts17.com
-i24news.tv
-ecfa.org
 fh.org
 ob.org
 dohi.org
