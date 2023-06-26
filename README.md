@@ -6,12 +6,12 @@ GOD JESUS CHRIST LORD OF LORDS
 telegram.me/GODJESUSSAVI0R
 minds.com/GODJESUSSAVIOR
 gab.com/GODJESUSSAVIOR
-github.com/GODJESUSSAVIOR
 locals.com/member/GODJESUSSAVIOR
 mastodon.social/@GODJESUSSAVIOR
 patreon.com/GODJESUSSAVIOR
 rumble.com/user/GODJESUSSAVIOR
 youtube.com/@GODJESUSSAVIOR
+github.com/GODJESUSSAVIOR
 archive.org/details/@godjesussavior
 Links = GODJESUSSAVIOR.webnode.page
 Email = GODJESUSSAVIORkingofkings@gmail.com
@@ -101,9 +101,10 @@ andreyredwhite.blogspot.com
 kesaksianpewahyuan.blogspot.com
 kesaksianmenguatkan.blogspot.com
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-= 1drv.ms/w/s!Avex3uT-tH4LgV7G4l4ArHNn0MIr
+
 = docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
 = tiny.cc/GJS
+= 1drv.ms/w/s!Avex3uT-tH4LgV7G4l4ArHNn0MIr
 
 ...
 
