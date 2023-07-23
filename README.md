@@ -11,6 +11,7 @@ patreon.com/GODJESUSSAVIOR
 rumble.com/user/GODJESUSSAVIOR
 youtube.com/@GODJESUSSAVIOR
 github.com/GODJESUSSAVIOR
+twitter.com/@GODJESUSSAV1OR
 archive.org/details/@godjesussavior
 Links = GODJESUSSAVIOR.webnode.page
 Email = GODJESUSSAVIORkingofkings@gmail.com
