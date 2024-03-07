@@ -32,10 +32,12 @@ minds.com/GODJESUSSAVIOR
 gab.com/GODJESUSSAVIOR
 locals.com/member/GODJESUSSAVIOR
 patreon.com/GODJESUSSAVIOR
+github.com/GODJESUSSAVIOR
+facebook.com/GODJESUSSAV1OR
+truthsocial.com/@GODJESUSSAVIOR
+twitter.com/@GODJESUSSAV1OR
 rumble.com/user/GODJESUSSAVIOR
 youtube.com/@GODJESUSSAVIOR
-github.com/GODJESUSSAVIOR
-twitter.com/@GODJESUSSAV1OR
 archive.org/details/@godjesussavior
 Links = GODJESUSSAVIOR.webnode.page
 Email = GODJESUSSAVIORkingofkings@gmail.com
