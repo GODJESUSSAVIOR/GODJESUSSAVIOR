@@ -50,6 +50,7 @@ seekfreedom.org
 godreports.com
 persecution.org
 christianaid.org
+asiaharvest.org
 opendoors.org
 elijahlist.com
 rignation.org
