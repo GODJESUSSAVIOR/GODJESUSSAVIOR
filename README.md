@@ -12,13 +12,13 @@
 ✝️❤️GOD HOLYS SPIRITS LOVES IS FORGIVES
 ✝️❤️GOD HOLYS SPIRITS WISDOMS ADVISERS
 ✝️❤️GOD HOLYS SPIRITS PEACE JOY HAPPY ETC
-✝️❤️GOD=GODFATHER+GODJESUS+GODSPIRITS 
+✝️❤️GOD=GODFATHER+GODJESUS+GODSPIRITS
 
-GOD JESUS SAVIOR Love Forgive Process Purify Teach Advise Heal Help Renew Bless Protect Save Us 
+GOD JESUS SAVIOR Love Forgive Process Purify Teach Advise Heal Help Renew Bless Protect Save Us
 
 GOD JESUS SAVIOR Speak Say
 GOD IS LOVES = Whoever Repent Believe GOD JESUS SAVIOR Faith Full Holy Love All Forgive All Obey GOD JESUS SAVIOR Will Be Save To Heaven
-GOD IS JUSTICES = Whoever Not Repent Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punish To Hell❗REPENTS❗ 
+GOD IS JUSTICES = Whoever Not Repent Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punish To Hell❗REPENTS❗
 
 telegram.me/GODJESUSSAVI0R
 minds.com/GODJESUSSAVIOR
@@ -33,7 +33,7 @@ twitter.com/@GODJESUSSAV1OR
 archive.org/details/@godjesussavior
 GODJESUSSAVIOR.webnode.page
 docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
-1drv.ms/w/c/0b7eb4fee4deb1f7/Efex3uT-tH4ggAveAAAAAAABklJWboY88DVtvWhWSwzp2A 
+1drv.ms/w/c/0b7eb4fee4deb1f7/Efex3uT-tH4ggAveAAAAAAABklJWboY88DVtvWhWSwzp2A
 
 biblegateway.com
 tlc-messages.com
@@ -106,7 +106,7 @@ facebook.com/manen.walling.39
 facebook.com/domnicpastor.anthony
 facebook.com/ChristsForgivenessMinistries
 facebook.com/gerejaholyspiritesronministry
-facebook.com/p/Elisha-Faiz-Alam-61556622218455 
+facebook.com/p/Elisha-Faiz-Alam-61556622218455
 
 alkitab.me
 tiny.cc/EvYusakTjiptoP
