@@ -12,36 +12,29 @@
 ✝️❤️GOD HOLYS SPIRITS LOVES IS FORGIVES
 ✝️❤️GOD HOLYS SPIRITS WISDOMS ADVISERS
 ✝️❤️GOD HOLYS SPIRITS PEACE JOY HAPPY ETC
-✝️❤️GOD=GODFATHER+GODJESUS+GODSPIRITS
+✝️❤️GOD=GODFATHER+GODJESUS+GODSPIRITS 
 
-GOD JESUS SAVIOR Loves Us Forgives Us Processes Us Purifies Us Teaches Us Advises Us Heals Us Helps Us Renews Us Blesses Us Protects Us Saves Us
+GOD JESUS SAVIOR Love Forgive Process Purify Teach Advise Heal Help Renew Bless Protect Save Us 
 
-✝️ GOD JESUS SAVIOR Speak Say
-❤️ GOD IS LOVES = Whoever Repents Lives Believe GOD JESUS SAVIOR Faith Full Holys Loves All Forgives All Obeys GOD JESUS SAVIOR Will Be Save To Heaven
-🙏 GOD IS JUSTICES = Whoever Not Repents Hearts Sins Memories Sins Minds Sins Speechs Sins Deeds Sins Will Be Punish To Hell
+GOD JESUS SAVIOR Speak Say
+GOD IS LOVES = Whoever Repent Believe GOD JESUS SAVIOR Faith Full Holy Love All Forgive All Obey GOD JESUS SAVIOR Will Be Save To Heaven
+GOD IS JUSTICES = Whoever Not Repent Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punish To Hell❗REPENTS❗ 
 
-❗REPENTS❗
-
-✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-GOD JESUS MESSIAH GOD OF GODS
-GOD JESUS SAVIOR KING OF KINGS
-GOD JESUS CHRIST LORD OF LORDS
-✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
 telegram.me/GODJESUSSAVI0R
 minds.com/GODJESUSSAVIOR
 gab.com/GODJESUSSAVIOR
-locals.com/member/GODJESUSSAVIOR
+facebook.com/GODJESUSSAV1OR
 patreon.com/GODJESUSSAVIOR
 github.com/GODJESUSSAVIOR
-facebook.com/GODJESUSSAV1OR
-truthsocial.com/@GODJESUSSAVIOR
-twitter.com/@GODJESUSSAV1OR
-rumble.com/user/GODJESUSSAVIOR
+GODJESUSSAVIOR.locals.com
 youtube.com/@GODJESUSSAVIOR
+rumble.com/user/GODJESUSSAVIOR
+twitter.com/@GODJESUSSAV1OR
 archive.org/details/@godjesussavior
-Links = GODJESUSSAVIOR.webnode.page
-Email = GODJESUSSAVIORkingofkings@gmail.com
-✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
+GODJESUSSAVIOR.webnode.page
+docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
+1drv.ms/w/c/0b7eb4fee4deb1f7/Efex3uT-tH4ggAveAAAAAAABklJWboY88DVtvWhWSwzp2A 
+
 biblegateway.com
 tlc-messages.com
 jesusministries.org
@@ -50,8 +43,8 @@ seekfreedom.org
 godreports.com
 persecution.org
 christianaid.org
-asiaharvest.org
 opendoors.org
+livinglilies.org
 elijahlist.com
 rignation.org
 acts17.com
@@ -59,6 +52,7 @@ i24news.tv
 ecfa.org
 fh.org
 ob.org
+kkcj.org
 dohi.org
 ywam.org
 ccusa.org
@@ -78,6 +72,7 @@ eevangelize.com
 vomcanada.com
 persecution.com
 churchinchains.ie
+worldpartners.net
 foodforthepoor.org
 feedthechildren.org
 steadfastglobal.org
@@ -90,19 +85,36 @@ unitedbiblesocieties.org
 www1.cbn.com/cbnnews
 youtube.com/@angeltvsss
 youtube.com/@domniclinda1
+youtube.com/@DailyRenewal1
 youtube.com/@CBNnewsonline
+youtube.com/@christsforgiveness
 youtube.com/@michaelgoodnews
 youtube.com/@goodnessinpeople
 youtube.com/@FoodForThePoorInc
+youtube.com/@divinelovefoundation
 youtube.com/@Yahweh_Children_Ministries
-✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
+youtube.com/@MissionaryForPakistanOfficial
+youtube.com/@Servants_Of_The_Lord_Ministry
+facebook.com/IsraeliPM
+facebook.com/worldisraelnews
+facebook.com/standwithisrael24
+facebook.com/nadeemk.din
+facebook.com/kazim.jadoon
+facebook.com/jaimal.bhandal
+facebook.com/repentOrperish7
+facebook.com/manen.walling.39
+facebook.com/domnicpastor.anthony
+facebook.com/ChristsForgivenessMinistries
+facebook.com/gerejaholyspiritesronministry
+facebook.com/p/Elisha-Faiz-Alam-61556622218455 
+
 alkitab.me
 tiny.cc/EvYusakTjiptoP
 tiny.cc/EvYusakTjiptoPurnomo
 tiny.cc/EvDrgYusakTjiptoPurnomo
 youtube.com/@bahteramedianetwork
 youtube.com/@MediaCreativeShekinah
-youtube.com/@SionMediaMinistry
+youtube.com/@SionMedia
 youtube.com/@AoCMedia
 youtube.com/@Daudtony
 youtube.com/@miracletvs
@@ -128,7 +140,4 @@ mannadelivery.blogspot.com
 andreyredwhite.blogspot.com
 kesaksianpewahyuan.blogspot.com
 kesaksianmenguatkan.blogspot.com
-✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
-= docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
-= tiny.cc/GJS
-= 1drv.ms/w/s!Avex3uT-tH4LgV7G4l4ArHNn0MIr
+docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
