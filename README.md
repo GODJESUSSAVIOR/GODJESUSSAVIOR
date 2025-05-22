@@ -106,7 +106,7 @@ facebook.com/domnicpastor.anthony
 facebook.com/ChristsForgivenessMinistries
 facebook.com/gerejaholyspiritesronministry
 facebook.com/p/Elisha-Faiz-Alam-61556622218455
-
+ 
 alkitab.me
 tiny.cc/EvYusakTjiptoP
 tiny.cc/EvYusakTjiptoPurnomo
