@@ -22,14 +22,12 @@ GOD IS JUSTICES = Whoever Not Repent Heart Sin Memory Sin Mind Sin Speech Sin De
 
 telegram.me/GODJESUSSAVI0R
 minds.com/GODJESUSSAVIOR
-gab.com/GODJESUSSAVIOR
 facebook.com/GODJESUSSAV1OR
 patreon.com/GODJESUSSAVIOR
 github.com/GODJESUSSAVIOR
 GODJESUSSAVIOR.locals.com
 youtube.com/@GODJESUSSAVIOR
 rumble.com/user/GODJESUSSAVIOR
-twitter.com/@GODJESUSSAV1OR
 archive.org/details/@godjesussavior
 GODJESUSSAVIOR.webnode.page
 docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
@@ -83,6 +81,7 @@ morningstarnews.org
 releaseinternational.org
 unitedbiblesocieties.org
 www1.cbn.com/cbnnews
+youtube.com/@JennyAbi
 youtube.com/@angeltvsss
 youtube.com/@domniclinda1
 youtube.com/@DailyRenewal1
