@@ -13,9 +13,9 @@
 ✝️❤️GOD HOLYS SPIRITS WISDOMS ADVISERS
 ✝️❤️GOD HOLYS SPIRITS PEACE JOY HAPPY ETC
 ✝️❤️GOD=GODFATHER+GODJESUS+GODSPIRITS
- 
+
 GOD JESUS SAVIOR Love Forgive Process Purify Teach Advise Heal Help Renew Bless Protect Save Us
- 
+
 GOD JESUS SAVIOR Speak Say
 GOD IS LOVES = Whoever Repent Believe GOD JESUS SAVIOR Faith Full Holy Love All Forgive All Obey GOD JESUS SAVIOR Will Be Save To Heaven
 GOD IS JUSTICES = Whoever Not Repent Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punish To Hell❗REPENTS❗
@@ -106,7 +106,7 @@ facebook.com/domnicpastor.anthony
 facebook.com/ChristsForgivenessMinistries
 facebook.com/gerejaholyspiritesronministry
 facebook.com/p/Elisha-Faiz-Alam-61556622218455
- 
+
 alkitab.me
 tiny.cc/EvYusakTjiptoP
 tiny.cc/EvYusakTjiptoPurnomo
@@ -140,4 +140,3 @@ andreyredwhite.blogspot.com
 kesaksianpewahyuan.blogspot.com
 kesaksianmenguatkan.blogspot.com
 docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
-
