@@ -18,13 +18,14 @@ GOD JESUS SAVIOR Love Forgive Process Purify Teach Advise Heal Help Renew Bless 
 
 GOD JESUS SAVIOR Speak Say
 GOD IS LOVES = Whoever Repent Believe GOD JESUS SAVIOR Faith Full Holy Love All Forgive All Obey GOD JESUS SAVIOR Will Be Save To Heaven
-GOD IS JUSTICES = Whoever Not Repent Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punish To Hell❗REPENTS❗
+GOD IS JUSTICES = Whoever Not Repent Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punish To Hell
+REPENTS❗REPENTS❗REPENTS❗
 
 telegram.me/GODJESUSSAVI0R
 minds.com/GODJESUSSAVIOR
 facebook.com/GODJESUSSAV1OR
-patreon.com/GODJESUSSAVIOR
 github.com/GODJESUSSAVIOR
+patreon.com/GODJESUSSAVIOR
 GODJESUSSAVIOR.locals.com
 youtube.com/@GODJESUSSAVIOR
 rumble.com/user/GODJESUSSAVIOR
@@ -33,9 +34,10 @@ GODJESUSSAVIOR.webnode.page
 docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
 1drv.ms/w/c/0b7eb4fee4deb1f7/Efex3uT-tH4ggAveAAAAAAABklJWboY88DVtvWhWSwzp2A
 
+Christian Testimonies = Kesaksian² Kristen
+docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
+
 biblegateway.com
-tlc-messages.com
-jesusministries.org
 torchofchrist.com
 seekfreedom.org
 godreports.com
@@ -71,6 +73,8 @@ vomcanada.com
 persecution.com
 churchinchains.ie
 worldpartners.net
+tlc-messages.com
+jesusministries.org
 foodforthepoor.org
 feedthechildren.org
 steadfastglobal.org
@@ -82,6 +86,7 @@ releaseinternational.org
 unitedbiblesocieties.org
 www1.cbn.com/cbnnews
 youtube.com/@JennyAbi
+youtube.com/@tpatrick111
 youtube.com/@angeltvsss
 youtube.com/@domniclinda1
 youtube.com/@DailyRenewal1
@@ -108,9 +113,7 @@ facebook.com/gerejaholyspiritesronministry
 facebook.com/p/Elisha-Faiz-Alam-61556622218455
 
 alkitab.me
-tiny.cc/EvYusakTjiptoP
-tiny.cc/EvYusakTjiptoPurnomo
-tiny.cc/EvDrgYusakTjiptoPurnomo
+docs.google.com/document/d/19ktnXXphV2gmAs5xjs-3SqbnP_3rDgRChXVDFvreT-A
 youtube.com/@bahteramedianetwork
 youtube.com/@MediaCreativeShekinah
 youtube.com/@SionMedia
@@ -139,4 +142,3 @@ mannadelivery.blogspot.com
 andreyredwhite.blogspot.com
 kesaksianpewahyuan.blogspot.com
 kesaksianmenguatkan.blogspot.com
-docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
