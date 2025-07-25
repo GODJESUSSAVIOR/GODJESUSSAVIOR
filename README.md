@@ -71,6 +71,7 @@ jewsforjesus.org
 eevangelize.com
 vomcanada.com
 persecution.com
+worthynews.com
 churchinchains.ie
 worldpartners.net
 tlc-messages.com
