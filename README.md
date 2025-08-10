@@ -21,7 +21,7 @@ GOD IS LOVES = Whoever Repent Believe GOD JESUS SAVIOR Faith Full Holy Love All 
 GOD IS JUSTICES = Whoever Not Repent Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punish To Hell
 REPENTS❗REPENTS❗REPENTS❗
 
-telegram.me/GODJESUSSAVI0R
+telegram.me/GODJESUSSAV1OR
 minds.com/GODJESUSSAVIOR
 facebook.com/GODJESUSSAV1OR
 github.com/GODJESUSSAVIOR
@@ -31,10 +31,21 @@ youtube.com/@GODJESUSSAVIOR
 rumble.com/user/GODJESUSSAVIOR
 archive.org/details/@godjesussavior
 GODJESUSSAVIOR.webnode.page
+
+GOD JESUS SAVIOR All Links :
 docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
 1drv.ms/w/c/0b7eb4fee4deb1f7/Efex3uT-tH4ggAveAAAAAAABklJWboY88DVtvWhWSwzp2A
 
-Christian Testimonies = Kesaksian² Kristen
+GOD JESUS SAVIOR Group Telegram :
+telegram.me/GODJESUSSAV1OR
+
+GOD JESUS SAVIOR Group Minds :
+minds.com/group/1801377388966187008
+
+GOD JESUS SAVIOR Group Facebook :
+facebook.com/groups/loves777
+
+GOD JESUS SAVIOR Christians Testimonies :
 docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
 
 biblegateway.com
