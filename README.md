@@ -16,11 +16,12 @@
 
 GOD JESUS SAVIOR Love Forgive Process Purify Teach Advise Heal Help Renew Bless Protect Save Us
 
-GOD JESUS SAVIOR Speak Say
-GOD IS LOVES = Whoever Repent Believe GOD JESUS SAVIOR Faith Full Holy Love All Forgive All Obey GOD JESUS SAVIOR Will Be Save To Heaven
-GOD IS JUSTICES = Whoever Not Repent Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punish To Hell
+GOD JESUS SAVIOR Speak Say :
+GOD IS LOVES IS MERCIES = Whoever Repent Believe GOD JESUS SAVIOR Faith Full Holy Love All Forgive All Obey GOD JESUS SAVIOR Will Be Save To Heaven
+GOD IS LAWS IS JUSTICES = Whoever Not Believe GOD JESUS SAVIOR & Not Faith Not Repent Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punish To Hell
 REPENTS❗REPENTS❗REPENTS❗
 
+GOD JESUS SAVIOR Social Medias :
 telegram.me/GODJESUSSAV1OR
 minds.com/GODJESUSSAVIOR
 facebook.com/GODJESUSSAV1OR
@@ -29,7 +30,7 @@ patreon.com/GODJESUSSAVIOR
 GODJESUSSAVIOR.locals.com
 youtube.com/@GODJESUSSAVIOR
 rumble.com/user/GODJESUSSAVIOR
-archive.org/details/@godjesussavior
+archive.org/details/@GODJESUSSAVIOR
 GODJESUSSAVIOR.webnode.page
 
 GOD JESUS SAVIOR All Links :
@@ -48,109 +49,5 @@ facebook.com/groups/loves777
 GOD JESUS SAVIOR Christians Testimonies :
 docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
 
-biblegateway.com
-torchofchrist.com
-seekfreedom.org
-godreports.com
-persecution.org
-christianaid.org
-opendoors.org
-livinglilies.org
-elijahlist.com
-rignation.org
-acts17.com
-i24news.tv
-ecfa.org
-fh.org
-ob.org
-kkcj.org
-dohi.org
-ywam.org
-ccusa.org
-csw.org.uk
-csi-usa.org
-jmkusa.com
-chinaaid.org
-cmiusca.org
-bitterwinter.org
-julie-lopez.com
-jewishvoice.org
-johnramirez.org
-oneforisrael.org
-barnabasaid.org
-jewsforjesus.org
-eevangelize.com
-vomcanada.com
-persecution.com
-worthynews.com
-churchinchains.ie
-worldpartners.net
-tlc-messages.com
-jesusministries.org
-foodforthepoor.org
-feedthechildren.org
-steadfastglobal.org
-riversapostolic.com
-adfinternational.org
-jubileecampaign.org
-morningstarnews.org
-releaseinternational.org
-unitedbiblesocieties.org
-www1.cbn.com/cbnnews
-youtube.com/@JennyAbi
-youtube.com/@tpatrick111
-youtube.com/@angeltvsss
-youtube.com/@domniclinda1
-youtube.com/@DailyRenewal1
-youtube.com/@CBNnewsonline
-youtube.com/@christsforgiveness
-youtube.com/@michaelgoodnews
-youtube.com/@goodnessinpeople
-youtube.com/@FoodForThePoorInc
-youtube.com/@divinelovefoundation
-youtube.com/@Yahweh_Children_Ministries
-youtube.com/@MissionaryForPakistanOfficial
-youtube.com/@Servants_Of_The_Lord_Ministry
-facebook.com/IsraeliPM
-facebook.com/worldisraelnews
-facebook.com/standwithisrael24
-facebook.com/nadeemk.din
-facebook.com/kazim.jadoon
-facebook.com/jaimal.bhandal
-facebook.com/repentOrperish7
-facebook.com/manen.walling.39
-facebook.com/domnicpastor.anthony
-facebook.com/ChristsForgivenessMinistries
-facebook.com/gerejaholyspiritesronministry
-facebook.com/p/Elisha-Faiz-Alam-61556622218455
-
-alkitab.me
-docs.google.com/document/d/19ktnXXphV2gmAs5xjs-3SqbnP_3rDgRChXVDFvreT-A
-youtube.com/@bahteramedianetwork
-youtube.com/@MediaCreativeShekinah
-youtube.com/@SionMedia
-youtube.com/@AoCMedia
-youtube.com/@Daudtony
-youtube.com/@miracletvs
-youtube.com/@jeniferveronica
-youtube.com/@Jonathan_KBK
-youtube.com/@StevenAgustinus
-youtube.com/@dreamayanes7934
-youtube.com/@kesaksiandunia9633
-youtube.com/@nicjuechanneltv4707
-youtube.com/@generasiyosuajakarta
-youtube.com/@restoreglobalmissions1046
-youtube.com/@kesaksianrohanikristen1215
-youtube.com/@kabarbaikpondanluwuk2733
-youtube.com/@mangarapanjaitan3958
-youtube.com/@TERANGKEMULIAAN
-joshuaivanministries.blogspot.com
-jurnalakhirzaman.blogspot.com
-yehudaministry.blogspot.com
-manministri.blogspot.com
-pedson.blogspot.com
-kesaksian-life.blogspot.com
-mannadelivery.blogspot.com
-andreyredwhite.blogspot.com
-kesaksianpewahyuan.blogspot.com
-kesaksianmenguatkan.blogspot.com
+GOD JESUS SAVIOR Christians Links :
+docs.google.com/document/d/1QiwL7eV12OJI5h9NjL_xP5qI7yzyjjHFhCQgZNqaKDQ
