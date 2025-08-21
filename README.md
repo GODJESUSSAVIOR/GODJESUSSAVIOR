@@ -28,7 +28,7 @@ facebook.com/GODJESUSSAV1OR
 github.com/GODJESUSSAVIOR
 patreon.com/GODJESUSSAVIOR
 GODJESUSSAVIOR.locals.com
-discord.com/users/GODJESUSSAVIOR
+discord.gg/gKv7Q5UZhm
 youtube.com/@GODJESUSSAVIOR
 rumble.com/user/GODJESUSSAVIOR
 GODJESUSSAVIOR.webnode.page
