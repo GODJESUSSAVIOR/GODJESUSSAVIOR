@@ -28,10 +28,10 @@ facebook.com/GODJESUSSAV1OR
 github.com/GODJESUSSAVIOR
 patreon.com/GODJESUSSAVIOR
 GODJESUSSAVIOR.locals.com
-discord.gg/gKv7Q5UZhm
 youtube.com/@GODJESUSSAVIOR
 rumble.com/user/GODJESUSSAVIOR
 GODJESUSSAVIOR.webnode.page
+docs.google.com/document/d/17bIVDbyVgcbOYym08odPOuRBfvHhDyPfZqgZl2dbHaU
 
 GOD JESUS SAVIOR All Links :
 docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
