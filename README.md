@@ -14,40 +14,38 @@
 ✝️❤️GOD HOLYS SPIRITS PEACE JOY HAPPY ETC
 ✝️❤️GOD=GODFATHER+GODJESUS+GODSPIRITS
 
-GOD JESUS SAVIOR Love Forgive Process Purify Teach Advise Heal Help Renew Bless Protect Save Us
-
-GOD JESUS SAVIOR Speak Say :
-GOD IS LOVES IS MERCIES = Whoever Repent Believe GOD JESUS SAVIOR Faith Full Holy Love All Forgive All Obey GOD JESUS SAVIOR Will Be Save To Heaven
-GOD IS LAWS IS JUSTICES = Whoever Not Believe GOD JESUS SAVIOR & Not Faith Not Repent Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punish To Hell
+✝️ GOD JESUS SAVIOR ❤️ Speak Say :
+● GOD IS LOVES IS MERCIES IS FORGIVES = Whoever Repented Believed GOD JESUS SAVIOR Faith Full Holy Love Obey GOD JESUS SAVIOR Will Be Saved To Heaven
+● GOD IS LAWS IS JUSTICES IS RIGHTEOUS = Whoever Not Repent Not Believe GOD JESUS SAVIOR & Not Faith Not Holy Not Love Heart Sin Memory Sin Mind Sin Speech Sin Deed Sin Will Be Punished To Hell
 REPENTS❗REPENTS❗REPENTS❗
 
-GOD JESUS SAVIOR Social Medias :
-telegram.me/GODJESUSSAV1OR
-minds.com/GODJESUSSAVIOR
-facebook.com/GODJESUSSAV1OR
-github.com/GODJESUSSAVIOR
-patreon.com/GODJESUSSAVIOR
-GODJESUSSAVIOR.locals.com
-youtube.com/@GODJESUSSAVIOR
-rumble.com/user/GODJESUSSAVIOR
-GODJESUSSAVIOR.webnode.page
-docs.google.com/document/d/17bIVDbyVgcbOYym08odPOuRBfvHhDyPfZqgZl2dbHaU
+✝️ GOD JESUS SAVIOR ❤️ Social Medias :
+https://telegram.me/GODJESUSSAV1OR
+https://minds.com/GODJESUSSAVIOR
+https://facebook.com/GODJESUSSAV1OR
+https://github.com/GODJESUSSAVIOR
+https://patreon.com/GODJESUSSAVIOR
+https://GODJESUSSAVIOR.locals.com
+https://youtube.com/@GODJESUSSAVIOR
+https://GODJESUSSAVIOR.webnode.page
+https://docs.google.com/document/d/17bIVDbyVgcbOYym08odPOuRBfvHhDyPfZqgZl2dbHaU
+https://1drv.ms/w/c/0b7eb4fee4deb1f7/ESILkB_7gS1Dl9mrN_0p5pIBE5GcEFJxy-p8GmCBLH9BcA
 
-GOD JESUS SAVIOR All Links :
-docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
-1drv.ms/w/c/0b7eb4fee4deb1f7/Efex3uT-tH4ggAveAAAAAAABklJWboY88DVtvWhWSwzp2A
+✝️ GOD JESUS SAVIOR ❤️ All Links :
+https://docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
+https://1drv.ms/w/c/0b7eb4fee4deb1f7/Efex3uT-tH4ggAveAAAAAAABklJWboY88DVtvWhWSwzp2A
 
-GOD JESUS SAVIOR Group Telegram :
-telegram.me/GODJESUSSAV1OR
+✝️ GOD JESUS SAVIOR ❤️ Christians Missionaries :
+https://docs.google.com/document/d/1iM3rwhQAtI2zvFQ_mEkIL88yeExx7UjMYXvjZYax1uM
 
-GOD JESUS SAVIOR Group Minds :
-minds.com/group/1801377388966187008
+✝️ GOD JESUS SAVIOR ❤️ Christians Ministries :
+https://docs.google.com/document/d/1Ulj2qXA-C1keK1b0TmjPCsFs7EWHlGot-XtC7MmEoKY
 
-GOD JESUS SAVIOR Group Facebook :
-facebook.com/groups/loves777
+✝️ GOD JESUS SAVIOR ❤️ Christians Testimonies :
+https://docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
 
-GOD JESUS SAVIOR Christians Testimonies :
-docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
+✝️ GOD JESUS SAVIOR ❤️ Christians Links :
+https://docs.google.com/document/d/1QiwL7eV12OJI5h9NjL_xP5qI7yzyjjHFhCQgZNqaKDQ
 
-GOD JESUS SAVIOR Christians Links :
-docs.google.com/document/d/1QiwL7eV12OJI5h9NjL_xP5qI7yzyjjHFhCQgZNqaKDQ
+✝️ GOD JESUS SAVIOR ❤️ Christians Songs :
+https://docs.google.com/document/d/1eK7gJZQg-voHmE3zsHuOaDX3jTOC-qQLjP3he7FUBfs
