@@ -22,7 +22,7 @@ REPENTS❗REPENTS❗REPENTS❗
 ✝️ GOD JESUS SAVIOR ❤️ Social Medias :
 https://telegram.me/GODJESUSSAV1OR
 https://minds.com/GODJESUSSAVIOR
-https://facebook.com/GODJESUSSAV1OR
+
 https://github.com/GODJESUSSAVIOR
 https://patreon.com/GODJESUSSAVIOR
 https://GODJESUSSAVIOR.locals.com
