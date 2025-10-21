@@ -20,32 +20,33 @@
 REPENTS❗REPENTS❗REPENTS❗
 
 ✝️ GOD JESUS SAVIOR ❤️ Social Medias :
-https://telegram.me/GODJESUSSAV1OR
-https://minds.com/GODJESUSSAVIOR
-
-https://github.com/GODJESUSSAVIOR
-https://patreon.com/GODJESUSSAVIOR
-https://GODJESUSSAVIOR.locals.com
-https://youtube.com/@GODJESUSSAVIOR
-https://GODJESUSSAVIOR.webnode.page
-https://docs.google.com/document/d/17bIVDbyVgcbOYym08odPOuRBfvHhDyPfZqgZl2dbHaU
-https://1drv.ms/w/c/0b7eb4fee4deb1f7/ESILkB_7gS1Dl9mrN_0p5pIBE5GcEFJxy-p8GmCBLH9BcA
+●https://telegram.me/GODJESUSSAV1OR
+●https://minds.com/GODJESUSSAVIOR
+●https://github.com/GODJESUSSAVIOR
+●https://GODJESUSSAVIOR.locals.com
+●https://patreon.com/GODJESUSSAVIOR
+●https://GODJESUSSAVIOR.super.site
+●https://friendster.click/me/GODJESUSSAVIOR
+●https://GODJESUSSAVIOR.webnode.page
+●https://youtube.com/@GODJESUSSAVIOR
+●https://docs.google.com/document/d/17bIVDbyVgcbOYym08odPOuRBfvHhDyPfZqgZl2dbHaU
+●https://1drv.ms/w/c/0b7eb4fee4deb1f7/ESILkB_7gS1Dl9mrN_0p5pIBE5GcEFJxy-p8GmCBLH9BcA
 
 ✝️ GOD JESUS SAVIOR ❤️ All Links :
-https://docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
-https://1drv.ms/w/c/0b7eb4fee4deb1f7/Efex3uT-tH4ggAveAAAAAAABklJWboY88DVtvWhWSwzp2A
+●https://docs.google.com/document/d/1IIuCbOEUjNOz-xG5pHBPiALzLiNegk7E
+●https://1drv.ms/w/c/0b7eb4fee4deb1f7/Efex3uT-tH4ggAveAAAAAAABklJWboY88DVtvWhWSwzp2A
 
 ✝️ GOD JESUS SAVIOR ❤️ Christians Missionaries :
-https://docs.google.com/document/d/1iM3rwhQAtI2zvFQ_mEkIL88yeExx7UjMYXvjZYax1uM
+●https://docs.google.com/document/d/1iM3rwhQAtI2zvFQ_mEkIL88yeExx7UjMYXvjZYax1uM
 
 ✝️ GOD JESUS SAVIOR ❤️ Christians Ministries :
-https://docs.google.com/document/d/1Ulj2qXA-C1keK1b0TmjPCsFs7EWHlGot-XtC7MmEoKY
+●https://docs.google.com/document/d/1Ulj2qXA-C1keK1b0TmjPCsFs7EWHlGot-XtC7MmEoKY
 
 ✝️ GOD JESUS SAVIOR ❤️ Christians Testimonies :
-https://docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
+●https://docs.google.com/document/d/1Ao3200_HzGo_naiLykdd73O5ucixS-eoXuLr_RO2jow
 
 ✝️ GOD JESUS SAVIOR ❤️ Christians Links :
-https://docs.google.com/document/d/1QiwL7eV12OJI5h9NjL_xP5qI7yzyjjHFhCQgZNqaKDQ
+●https://docs.google.com/document/d/1QiwL7eV12OJI5h9NjL_xP5qI7yzyjjHFhCQgZNqaKDQ
 
 ✝️ GOD JESUS SAVIOR ❤️ Christians Songs :
-https://docs.google.com/document/d/1eK7gJZQg-voHmE3zsHuOaDX3jTOC-qQLjP3he7FUBfs
+●https://docs.google.com/document/d/1eK7gJZQg-voHmE3zsHuOaDX3jTOC-qQLjP3he7FUBfs
