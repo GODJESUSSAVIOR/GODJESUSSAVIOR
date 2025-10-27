@@ -23,10 +23,9 @@ REPENTS❗REPENTS❗REPENTS❗
 ●https://telegram.me/GODJESUSSAV1OR
 ●https://minds.com/GODJESUSSAVIOR
 ●https://github.com/GODJESUSSAVIOR
-●https://GODJESUSSAVIOR.locals.com
 ●https://patreon.com/GODJESUSSAVIOR
+●https://GODJESUSSAVIOR.locals.com
 ●https://GODJESUSSAVIOR.super.site
-●https://friendster.click/me/GODJESUSSAVIOR
 ●https://GODJESUSSAVIOR.webnode.page
 ●https://youtube.com/@GODJESUSSAVIOR
 ●https://docs.google.com/document/d/17bIVDbyVgcbOYym08odPOuRBfvHhDyPfZqgZl2dbHaU
